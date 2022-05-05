@@ -1,0 +1,1 @@
+neste documento contém a atualização do dia anterior, contendo informações atualizadas, como o campo de experiências desse curriculo.
